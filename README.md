@@ -7,3 +7,16 @@ we
 w
 e
 we
+we
+we
+we
+we
+w
+ere
+rr
+ere
+er
+ere
+re
+r
+e
